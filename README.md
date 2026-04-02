@@ -1,1 +1,0 @@
-# algoritma-dan-pemograman-6
